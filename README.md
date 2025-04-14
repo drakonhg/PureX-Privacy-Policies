@@ -37,7 +37,7 @@ We may update this Privacy Policy from time to time. Any changes will be effecti
 
 ## Contact Information
 
-If you have any questions or concerns about this Privacy Policy, please contact us through the extension's support channels.
+If you have any questions or concerns about this Privacy Policy, please contact us at drakonhg@gmail.com.
 
 ## Your Consent
 
